@@ -1,6 +1,4 @@
 # Resume
-<img width="436" alt="Screen Shot 2021-02-21 at 10 46 46 AM" src="https://user-images.githubusercontent.com/38195404/108635095-2a316880-7432-11eb-8a41-e07c3a15c02c.png">
-
 Brett N. Daily
 949-683-9710 | brett.n.daily@gmail.com
 Objective
